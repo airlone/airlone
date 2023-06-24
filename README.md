@@ -1,6 +1,6 @@
 
 <p align="center">  
-<img src="https://i.pinimg.com/originals/49/71/84/497184757f0a9d95a3c00b9ee087c6d2.jpg">
+<img src="https://th.bing.com/th/id/R.8219924cb55758f1b2ead9d4817f947f?rik=ILzGizEqBwmc2w&pid=ImgRaw&r=0">
 </p>
    <p align="center">
    <img src="https://discord.c99.nl/widget/theme-4/1003019817047044139.png">
